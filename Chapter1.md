@@ -15,3 +15,7 @@ Somehow, they fit all the soda and chips into Abigail's car.
 It's a miracle.
 
 They make their way back to the house in one piece.
+
+When unpacking, they realize they have another problem.
+
+How are they going to fit all these chips and sodas into Abigail's tiny, tiny house?
