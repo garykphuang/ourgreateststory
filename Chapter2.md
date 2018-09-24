@@ -10,10 +10,14 @@ Abigail leaned forward, the drink in her plastic cup sloshing over the rim.
 
 Gary shoved a *v* drunk football player out of his way.
 
-"Is this venue even big enough for all these people?" 
+"Is this venue even big enough for all these people?"
 
 Abigail shrugged.
 
 "It will be once we raise the roof!
 
 Now shut up, it's time for shots!"
+
+While all of this is going on, Gary calls a construction company.
+
+He is working on getting the roof raised.
