@@ -23,3 +23,7 @@ Gary and Zack climb into the wagon and Abigail bikes them home.
 Shockingly, they make their way back to the house in one piece.
 
 Especially considering Abigail was already drunk and sucks at biking anyways.
+
+When unpacking, they realize they have another problem.
+
+How are they going to fit all these chips and sodas into Abigail's tiny, tiny house?
