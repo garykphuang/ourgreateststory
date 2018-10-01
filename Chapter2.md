@@ -18,6 +18,8 @@ Abigail shrugged.
 
 Now shut up, it's time for shots!"
 
+Zack takes a swig from a beer left on the dining table before he pulls out his guitar and begins to serenade partygoers with the blues.
+
 While all of this is going on, Gary calls a construction company.
 
 He is working on getting the roof raised.
