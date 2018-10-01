@@ -27,3 +27,5 @@ Zack then takes a swig from a beer left on the dining table before he pulls out 
 While all of this is going on, Gary calls a construction company.
 
 He is working on getting the roof raised, for the cheap cheap price of two sodas.
+
+The construction company says that they'll take the job!
