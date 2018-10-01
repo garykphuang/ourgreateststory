@@ -18,6 +18,10 @@ Abigail shrugged.
 
 Now shut up, it's time for shots!"
 
+For the first time since this whole party started, Zack's ears perk up.
+
+"Shots? Woooo!"
+
 While all of this is going on, Gary calls a construction company.
 
-He is working on getting the roof raised.
+He is working on getting the roof raised, for the cheap cheap price of two sodas. 
