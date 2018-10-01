@@ -4,20 +4,32 @@ The zigzag team wake up the next morning.
 
 It is a Nuclear Apocalypse.
 
-Everyone is dead, except for the zigzag team.
+Everyone is dead.
 
-At least that's what they think.
-
-A hippie van with some Scooby Doo decals arrives and takes them to an outpost.
+A car arrives and takes them to an outpost.
 
 The outpost is a safe haven for people to survive after the apocalypse.
 
 Going outside is not allowed because of radiation.
 
-Copulation is also not allowed, unless the Grandmaster gives permission.
+Copulation is also not allowed.
 
 The anti-christ is there as well as robots and the Latex monster.
 
 This is some AHS shit.
 
 The zigzag team are SHOOKETH.
+
+Suddenly snakes appear out of nowhere.
+
+No one knows where they came from as they should have been dead.
+
+Miss Venable, the head of the outpost kills them with a cleaver.
+
+They end up eating a snake soup.
+
+And then the snakes turn into living snakes inside them.
+
+They all die because of their poison.
+
+---------- The End -----------
