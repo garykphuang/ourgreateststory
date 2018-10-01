@@ -10,9 +10,9 @@ College life is a hard time so they can't afford to buy anything more expensive.
 
 They clog up the cashier on the way out, but manage to leave in record time.
 
-Gary attachs a wagon to the back of Abigail's bike.
+Gary attaches a wagon to the back of Abigail's bike.
 
-Zack stands to the side, supervising, while eatng a bag of chips.
+Zack stands to the side, supervising, while eating a bag of chips.
 
 Abigail and Gary manage to carefully stack the cans and bags in the wagon.
 
