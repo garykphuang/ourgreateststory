@@ -32,4 +32,8 @@ And then the snakes turn into living snakes inside them.
 
 They all die because of their poison.
 
+Suddenly Zack wakes up and screams "SUDO!"
+
+Then he dies again.
+
 ---------- The End -----------
