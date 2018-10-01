@@ -22,6 +22,8 @@ For the first time since this whole party started, Zack's ears perk up.
 
 "Shots? Woooo!"
 
+Zack then takes a swig from a beer left on the dining table before he pulls out his guitar and begins to serenade partygoers with the blues.
+
 While all of this is going on, Gary calls a construction company.
 
-He is working on getting the roof raised, for the cheap cheap price of two sodas. 
+He is working on getting the roof raised, for the cheap cheap price of two sodas.

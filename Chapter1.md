@@ -27,3 +27,5 @@ Especially considering Abigail was already drunk and sucks at biking anyways.
 When unpacking, they realize they have another problem.
 
 How are they going to fit all these chips and sodas into Abigail's tiny, tiny house?
+
+Which is totally a lie because her house has literally 4 stories.
